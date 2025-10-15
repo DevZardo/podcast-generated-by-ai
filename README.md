@@ -4,4 +4,4 @@ Título: Machine Wars - O Prompt Contra-Ataca
 O título e o roteiro foram gerados pelo chatgpt. A imagem de capa foi feita usando prompts no midjourney.
 
 
-![Gemini_Generated_Image_x58ecx58ecx58ecx (1)](https://github.com/user-attachments/assets/10d9aee9-6c96-4ae9-889f-14c1e8f70a67)
+![Uploading thumbnail-podcast (1).png…]()
