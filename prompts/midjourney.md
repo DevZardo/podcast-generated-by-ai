@@ -1,0 +1,1 @@
+um jedi apresentador de podcast, com a idade de 25 anos. Ele tem cabelos loiros, um topete pequeno, um cavanhaque preto. O cenário é um podcast mas dentro de uma nave ao estilo star wars, podendo ver até as estrelas e o espaço ao fundo
